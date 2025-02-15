@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **surajpatra687@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFpMlSDMFA/0t0rUDymC3vBSRHAs-eImA/edit?utm_content=DAFpMlSDMFA&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFpMlSDMFA/0t0rUDymC3vBSRHAs-eImA/edit?utm_content=DAFpMlSDMFA&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 📄 Know about my experiences https://www.canva.com/design/DAGZ5TtnScM/NZ6QZs8MGWROZQ6bJGNQaA/edit?utm_content=DAGZ5TtnScM&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
